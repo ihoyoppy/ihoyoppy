@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @ihoyoppy
+- 👀 I’m interested in programer 
+- 🌱 I’m currently learning
+- 💓 im japan and korea half
+- ty <3
